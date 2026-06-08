@@ -1,1 +1,1 @@
-# Project-KTI-Kel-D
+# Project-KTI-C-Kelompok-D
